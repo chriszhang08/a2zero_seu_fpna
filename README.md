@@ -39,7 +39,7 @@ energy generation capacity, and the federal solar Investment Tax Credit (ITC).
 
 ## Outputs
 
-TODO insert substack link
+[substack link](https://chriszhang3.substack.com/p/free-solar-panels-if-you-sign-up?r=17stkd)
 
 
 ### Plots Generated
